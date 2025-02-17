@@ -1,3 +1,3 @@
 # PQRS
 <br>
-Author Puja
+Author Puja Rani Panda
